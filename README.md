@@ -1,5 +1,5 @@
 ### Hi there 👋
 
 - 🔭 Currently Learning How to code  
-- 😄 Pronouns: ...
+- 😄 Noun: Misanthrope
 - ⚡ Fun fact: I don't use social media
